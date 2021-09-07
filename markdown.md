@@ -2,4 +2,5 @@
 ## Heres what i like:
 1. Cars
 2. Computers 
-3. Code 
+3. Code
+4. Swimming 
